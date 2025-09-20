@@ -1,9 +1,8 @@
 # Sudhapriyadharshini P
 
 📍 Kovilpatti, TN 628 502  
-📧 [Sudhapaulraj727@gmail.com](mailto:Sudhapaulraj727@gmail.com)  
-
-
+📧 [Sudhapaulraj727@gmail.com](mailto:Sudhapaulraj727@gmail.com) 
+https://www.linkedin.com/in/sudha-priyadharshini-paulraj-aa5115302?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 ---
 
 ## About me
