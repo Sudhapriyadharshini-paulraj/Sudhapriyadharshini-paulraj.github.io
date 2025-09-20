@@ -6,7 +6,7 @@
 
 ---
 
-About me
+## About me
 Dedicated and enthusiastic **BA LLB (Hons)** student with a passion for social justice and a commitment to making a positive impact in the legal field.
 
 ---
